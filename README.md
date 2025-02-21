@@ -1,0 +1,1 @@
+This all just some projects I've been trying to make for lots of subjects, schools, uni, for fun, and more, not all of these codes are 100% correct since I'm still learning, feedbacks are always welcome.
